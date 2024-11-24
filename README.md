@@ -1,2 +1,2 @@
 # StableInfluence
-If researchers need code, they can contact the author and provide it after evaluation
+Contact email to obtain: rd9226946@163.com
